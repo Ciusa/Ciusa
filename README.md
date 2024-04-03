@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ciusa
 - 👀 I’m interested in hacking
-- 🌱 I’m currently learning hacking
+- 🌱 I’m currently learning all of these are possible <3
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ig: ciusadarius
 
